@@ -45,7 +45,7 @@ In a second, gone.
 
 We pass through cities  
 We pass through dreams  
-We're just like dark matter,
+We're just like dark matter,  
 Non-interacting.
 
 A reddish glow is all that remains  
@@ -93,38 +93,38 @@ But now it starts again
 Moving slowly at first  
 Then gathering speed.
 
-A row of lights pass by
+A row of lights pass by  
 It is another train  
-More like us, going somewhere
+More like us, going somewhere  
 Some of them, bored.
 
-The effect of Doppler
-Sounds into my ear
-Muted though by glass
-Fast, it rushes past
+The effect of Doppler  
+Sounds into my ear  
+Muted though by glass  
+Fast, it rushes past.
 
-Like a century, it is
-How long a journey it seems
-The same things repeat
+Like a century, it is  
+How long a journey it seems  
+The same things repeat  
 over and over.
 
-Even the words grow boring
-My patience grows thin
-I ask the time again
+Even the words grow boring  
+My patience grows thin  
+I ask the time again  
 Ninety minutes left.
 
-An old man speaks to a
-Reader of books
-Someone throws food into
+An old man speaks to a  
+Reader of books  
+Someone throws food into  
 A dusty dustbin.
 
-Soon in the future
-This tapestry will be done
-The journey will have finished
+Soon in the future  
+This tapestry will be done  
+The journey will have finished  
 and I'll be at rest.
 
-The locomotive whirls on
-Infinity passes, stops
-And passes again.
-And then we are there.
+The locomotive whirls on  
+Infinity passes, stops  
+And passes again.  
+And then we are there.  
 At last.
